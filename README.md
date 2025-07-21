@@ -2,7 +2,7 @@ V3Cube has been in this industry for a little under a decade. Over the years the
 
 V3Cube has always encouraged its clients to visit their development center and interact with the team to see where the magic happens. Incidentally, one of the biggest complaints of their clients happens to have arisen during the CoVid 19 Corona Virus Pandemic Lockdown. 
 
-According to many clients of V3Cube, they are deeply disappointed for not being able to visit their development center physically to get a firsthand experience in Indian hospitality and a chance to soak in all the magic that occurs in the development center. 
+Many V3Cube clients have expressed their disappointment at not being able to visit the company’s development center in person — missing out on the warm Indian hospitality and the opportunity to witness the innovation and energy that drive the team’s work.
 
 To appease these clients, V3Cube has started organizing video conferencing calls to promote interaction between project managers and their clients so that they can take a virtual tour of their facilities. Recently, just before the world locked down completely, one of their clients in Vietnam was awarded for having the best business app by their country. This app was created by none other than V3Cube. 
 
